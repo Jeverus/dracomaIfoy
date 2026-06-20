@@ -1,5 +1,5 @@
 ${\textsf{\color{#3d3d73} hi}}$
-![](https://files.catbox.moe/rn3osh.png)
+![](https://files.catbox.moe/nnswh3.png)
 
 ${\textsf{\color{#ffdead}READ RENTRY /}}$ ${\textsf{\color{#3d3d73}PRONOUNS PAGE}}$
 
